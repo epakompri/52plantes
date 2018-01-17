@@ -3,6 +3,7 @@
 Le myosotis n’est pas une plante rare, elle est disponible un peu partout dans le monde entier. Cette espèce a la particularité de se ressemer facilement. Sans entretien, elle peut très vite envahir un jardin. Il appartient à la famille des boraginacées et compte près d’une centaine d’espèces.
 
 ![fleurs et feuilles](fleurs-feuilles.jpg)
+_Photo prise par [Tigerente](https://en.wikipedia.org/wiki/User:Tigerente)_
 
 # Comment l'identifier
 
