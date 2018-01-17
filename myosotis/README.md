@@ -37,7 +37,11 @@ Il ne faut utiliser le myosotis chez les touts-petits, sans l’avis d’un méd
 La plante peut se conserver dans un lieu sec, non accessible à une forte lumière et présentant une température ambiante. 
 
 ## Références
+
 https://www.mr-plantes.com/2011/04/myosotis-myosotis-alpina/
+
 http://www.bien-etre-naturel.info/plantes/myosotis.html
+
 http://lamotte.pagesperso-orange.fr/pages/fm3.htm
+
 https://www.mr-plantes.com/2010/11/potassium-kalium/
