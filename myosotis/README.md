@@ -7,7 +7,7 @@ _Photo prise par [Tigerente](https://en.wikipedia.org/wiki/User:Tigerente)_
 
 # Comment l'identifier
 
-Ses feuilles sont d'un vert clair, recouvertes de poils, de forme allongée et plutôt molles. Les fleurs blanches, bleues ou roses apparaissent de mai à juillet. Cette plante vivace peut faire jusqu'a 40 centimètres à la fin de sa croissance. Lorsqu'il n'y à pas de fleurs, cela ressemble à la mâche, en un peu plus foncé, et avec des poils sur les feuilles.
+Ses feuilles sont d'un vert clair, recouvertes de poils, de forme allongée et plutôt molles. Les fleurs blanches, bleues ou roses apparaissent de mai à juillet. Cette plante vivace peut faire jusqu'a 40 centimètres à la fin de sa croissance. Lorsqu'il n'y à pas de fleurs, cela ressemble à la mâche, en un peu plus foncé, et avec des poils sur les feuilles, et avec une racine très dur à détérer.
 
 On trouve le Myosotis en Europe jusqu'à 2000 m d'altitude en moyenne. Il affectionne les sols humides, par exemple la lisière de forêt ou le bord des chemins.
 
