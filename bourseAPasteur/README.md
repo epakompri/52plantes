@@ -27,7 +27,6 @@ J'ai trouvé de la bourse-à-pasteur en bordure d'un bosquet et également dans 
 Je n'ai gouté que les feuilles, ce n'est pas encore la saison des fleurs. Leur goût n'est pas très prononcé.
 
 ![feuilles](feuilles.jpg)
-_Photo prise par [Tarquin](https://commons.wikimedia.org/w/index.php?title=User:Tarquin&action=edit&redlink=1)_
 
 # Propriétés
 
