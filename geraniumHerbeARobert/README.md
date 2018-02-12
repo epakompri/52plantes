@@ -29,7 +29,7 @@ _Photo de [Iifar](https://commons.wikimedia.org/wiki/User:Iifar)_
 
 # Propriétés
 
-Vous pouvez vous frotter la peau avec ses feuilles comme répulsif.
+Vous pouvez vous frotter la peau avec ses feuilles comme répulsif contre les moustiques, la nature est bien faite, ces deux espèces poussent dans les mêmes milieux :-) !
 
 L'infusion de plante entière (20g par litre d'eau) sans les racines, cueillie au moment de la floraison, est hémostatique, antispasmodique, astringente, hypoglycémiante, tonique, diurétique et cicatrisante.
 
