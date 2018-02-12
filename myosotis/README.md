@@ -31,7 +31,7 @@ La plante a de réelles actions apaisantes et relaxantes sur le système nerveux
 
 Le myosotis contient beaucoup de potassium. Consommée en excès, cela peut causer des troubles digestifs, voir de l'insuffisance rénale.
 
-Il ne faut utiliser le myosotis chez les touts-petits, sans l’avis d’un médecin. Son utilisation durant la gestation n’est pas spécialement contre-indiquée, toutefois il est plus prudent de demander conseil à un gynécologue avant d’y recourir. 
+Il ne faut pas utiliser le myosotis chez les touts-petits, sans l’avis d’un médecin. Son utilisation durant la gestation n’est pas spécialement contre-indiquée, toutefois il est plus prudent de demander conseil à un gynécologue avant d’y recourir. 
 
 # Conservation
 
