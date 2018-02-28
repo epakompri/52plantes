@@ -24,7 +24,7 @@ J'ai gouté la fleur qui est déliceuse, le gout est assez frais et prononcé, m
 
 # Propriétés
 
-Les feuilles et les fleurs de primevère se consomment en salade, seules ou accompagnées. 
+Les feuilles et les fleurs de primevère se consomment en salade, seules ou accompagnées. Toutes les espèces sont comestibles :-)
 
 # Conservation
 
