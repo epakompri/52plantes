@@ -38,7 +38,7 @@ La vitamine K, nécessaire entre autres à la coagulation du sang, peut être fa
 
 # Conservation
 
-On conseille l’utilisation de feuilles et fleurs fraîches, ce qui n’est pas compliqué puisque le plantain se récolte 10 mois sur 12, cependant, vous pouvez conserver cette plantes en la faisant sécher le plus rapidement possible après l'avoir récoltée (voir https://fr.wikihow.com/faire-s%C3%A9cher-des-herbes)
+On conseille l’utilisation de feuilles et fleurs fraîches, cependant vous pouvez conserver cette plantes en la congélant.
 
 ## Références
 
