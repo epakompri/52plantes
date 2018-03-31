@@ -28,7 +28,7 @@ On utilise les fleurs séchées en infusion. La marguerite possède des proprié
 
 # Conservation
 
-Vous pouvez conserver cette plantes en la faisant sécher le plus rapidement possible après l'avoir récoltée (voir https://fr.wikihow.com/faire-s%C3%A9cher-des-herbes)
+Vous pouvez conserver cette plante en la faisant sécher le plus rapidement possible après l'avoir récoltée (voir https://fr.wikihow.com/faire-s%C3%A9cher-des-herbes)
 
 ## Références
 
