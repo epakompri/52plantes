@@ -4,7 +4,7 @@ Chaque semaine (ou presque, cela m'est arrivé de ne pas pouvoir 😕) je crée 
 
 Les articles sont disponibles parallèlement sur [framagit](https://framagit.org/epakompri/52plantes), [gitlab](https://gitlab.com/epakompri/52plantes) et [github](https://github.com/epakompri/52plantes) dans le but de ne pas dépendre d'une plateforme.
 
-Vous pouvez totalement ré-utiliser le contenu des articles 😃
+Vous pouvez totalement ré-utiliser le contenu des articles 😋
 
 # Réseaux
 
