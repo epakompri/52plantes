@@ -33,6 +33,8 @@ _Photo prise par [Ewan Munro](https://www.flickr.com/people/55935853@N00)_
 
 Il est recommandé de ne récolter que les quelques feuilles (~4) supérieures de la plante, car les suivantes seraient plus amères.
 
+les pourcentages qui suivent sont le pourcentage par rapport aux apports journaliers recommandés, pour 100 grammes d'ortie consommée.
+
 L’ortie est riche en minéraux et oligo-éléments, notamment en fer (128%) et en magnésium (118%), mais aussi en calcium (194%), phosphore (55%), potassium (47%), manganèse (441% !), sélénium et zinc (51%). Elle contient par ailleurs des vitamines A (137%), B, C (111%) et K.
 
 De plus, les fibres de la tige peuvent servir pour fabriquer des cordages :-)
