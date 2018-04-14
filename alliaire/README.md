@@ -32,10 +32,6 @@ On peut manger les feuilles en cru, ciselées en salade par exemple. Elles sont 
 
 Il est également possible de faire de la moutarde avec les graines.
 
-![soupe d'ortie](./soupe.jpg)
-
-_Photo prise par [Ewan Munro](https://www.flickr.com/people/55935853@N00)_
-
 Il est recommandé de ne récolter que les quelques feuilles (~4) supérieures de la plante, car les suivantes seraient plus amères.
 
 # Précautions
